@@ -1,1 +1,0 @@
-# BYU-OIT-Skill-exercise
